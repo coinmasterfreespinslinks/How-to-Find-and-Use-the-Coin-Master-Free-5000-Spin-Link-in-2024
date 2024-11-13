@@ -4,6 +4,8 @@
 
 Coin Master, one of the most popular mobile games, is all about collecting cards, attacking other players’ villages, and building your own. Spins are the in-game currency that can be used to perform various actions like attacking, raiding, and opening chests. Having a large number of spins can significantly enhance your gameplay, making it easier to progress through levels and unlock new features.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 So, how can you get your hands on a *free 5000 spins* link? Let’s break it down and help you make the most of this exciting offer.
 
 ### What is Coin Master?
